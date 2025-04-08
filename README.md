@@ -1,16 +1,64 @@
-## Hi there 👋
+1Win Promo Code (ANUBONUS20) – Get $5000 Sign Up & Referral Bonus
+If you're looking for the best betting and casino bonuses, 1Win offers exciting promotions, including a sign-up bonus, referral rewards, and exclusive promo codes like ANUBONUS20 and AMARA500. In this guide, we’ll explore how to claim these bonuses, the features of 1Win, and how to maximize your rewards.
+Get a $5000 1Win Sign Up Bonus to open an account via this 1Win Promo code “ANUBONUS20 ”.
 
-<!--
-**1Win-Promo-Code/1Win-Promo-Code** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+1Win Promo Code: Get a $5000 Sign Up Bonus
 
-Here are some ideas to get you started:
+Find out all the latest 1Win referral codes to save money. Below is the working 1Win app promo code that you can use.
+1Win Promo Code April– ANUBONUS20
+1Win referral Code 2025 –ANUBONUS20
+1Win Promo Code- ANUBONUS20
+1Win new user referral code – ANUBONUS20
+1Win referral code existing user – ANUBONUS20
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+What is 1Win Promo Code?
+
+A 1Win promo code unlocks special bonuses for new and existing users. By entering a valid code ( ANUBONUS20 or AMARA500) during registration or deposit, you can get:
+Extra bonus cash
+Free bets
+Higher deposit matches
+Current 1Win Promo Codes (2024)
+Promo Code
+Bonus Offer
+ANUBONUS20
+Get 20% extra on your first deposit
+AMARA500
+Exclusive sign-up bonus up to $5000
+
+
+
+1Win Sign-Up Bonus (Welcome Offer)
+New users can claim a massive welcome bonus when registering with 1Win:
+Up to 500% on the first deposit (varies by country)
+Minimum deposit required (check terms)
+Bonus credited as free bets or casino funds
+How to Claim the 1Win Sign-Up Bonus?
+Register on 1Win’s official website
+Enter promo code (ANUBONUS20 or AMARA500) if applicable
+Make your first deposit
+Receive your bonus instantly
+1Win Referral Bonus & Referral Code (AMARA500)
+1Win rewards users for inviting friends through its referral program:
+You earn a commission (up to 50%) from your friend’s losses
+Your friend gets a bonus (e.g., free bets or deposit match)
+How to Use 1Win Referral Code?
+Share your referral link/code (AMARA500) with friends
+They sign up and deposit using your code
+You both receive bonuses
+(Terms apply; check 1Win’s referral policy for details.)
+
+1Win Features – Why Choose This Platform?
+1Win is a popular betting and casino platform with:
+✔ Sports Betting – Wide range of sports (Cricket, Football, Tennis, etc.)
+✔ Live Betting & Streaming – Bet in real-time with live matches
+✔ Online Casino – Slots, poker, roulette, and live dealers
+✔ Fast Payouts – Quick withdrawals via multiple methods
+✔ Mobile App – Bet on the go (iOS & Android)
+✔ Secure & Licensed – Legally operates in multiple countries
+
+Conclusion – Should You Use 1Win Promo Codes?
+Yes! By using 1Win promo codes (ANUBONUS20 or AMARA500), you can unlock exclusive bonuses for sports betting and casino games. Remember:
+✅ Compare promo codes for the best offer
+✅ Check wagering requirements before claiming
+
+
