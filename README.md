@@ -1,4 +1,5 @@
-1Win Promo Code (ANUBONUS20) – Get $5000 Sign Up & Referral Bonus
+## 1Win Promo Code (ANUBONUS20) – Get $5000 Sign Up & Referral Bonus
+
 If you're looking for the best betting and casino bonuses, 1Win offers exciting promotions, including a sign-up bonus, referral rewards, and exclusive promo codes like ANUBONUS20 and AMARA500. In this guide, we’ll explore how to claim these bonuses, the features of 1Win, and how to maximize your rewards.
 Get a $5000 1Win Sign Up Bonus to open an account via this 1Win Promo code “ANUBONUS20 ”.
 
